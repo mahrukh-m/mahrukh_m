@@ -1,2 +1,2 @@
 # mahrukh_m
-My personal repository.
+FAST NUCES BS-SE 1st year.
